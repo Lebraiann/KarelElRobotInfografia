@@ -7,3 +7,9 @@ Trabajo hecho por:
 * Peña Jesus- 2220231108
 
 
+#### Infografia en el archivo "Karelelrobot.pdf"  :)))
+
+
+
+
+
